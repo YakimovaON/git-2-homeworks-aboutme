@@ -6,4 +6,4 @@
 4. I love skiing and skating in winter
 5. I like to study in netology
 
-! [It's me] (IMG-20190216-WA0004.jpg)
+! [It's me] (C:\Users\gagar\OneDrive\Изображения\Saved Pictures\IMG-20190216-WA0004.jpg)
